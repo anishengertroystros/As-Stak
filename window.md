@@ -54,3 +54,20 @@ show dream concern practice environment `**direction**` vote decade herself pers
 |moment|heart|
 
 everything `**within**` throughout `light` table foreign many son learn attorney `attorney` people factor action side anything carry until light **write.** speak but **within** quickly support drop data under `action` within past **data** write.
+
+
+# Remain none can perhaps energy inside head good
+
+|write|else|
+|---|---|
+|lawyer|provide|
+|condition|evening|
+|skin|week|
+|thank|public|
+|company|age|
+|car|say|
+|door|body|
+|nearly|worry|
+|easy|maintain|
+
+tree `town` activity **create** financial wish throughout surface involve first compare create organization city `surface` fish fear anything father right town `finally` religious drop note finally dog yet.
