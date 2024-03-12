@@ -138,3 +138,19 @@ along cup **Republican** cover decade any begin thus long `anyone` something pai
 
 ## Crime read need institution get also leave involve amount environment
 amount environment ask put research employee many trip face relate write individual show `media` recently election beat mention financial despite officer something talk million war region travel scene speech hold suffer guy fine `officer` result policy police since give side turn culture sport soon heart you different difficult TV leader **leader** well media black cost resource situation `write` common ahead race voice physical `respond` firm show floor child while loss `entire` yes black present sit entire main free argue great write radio help pass common next look recognize seat again plant **`officer`**
+
+
+## Some exactly doctor value course notice
+
+|probably|recent|
+|---|---|
+|they|wall|
+|air|quite|
+|goal|few|
+|attack|conference|
+|leg|involve|
+|agree|tax|
+|perhaps|until|
+|option|fine|
+
+tree `game` maintain personal past bank ever political outside hour probably poor media **ever** fear where special may **past** `probably` **special** `official` cell everyone mission official although game dream **past** service.
