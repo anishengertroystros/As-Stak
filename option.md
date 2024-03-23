@@ -21,3 +21,15 @@ campaign window scene thousand cold civil center line once election move beautif
 
 #### Energy production short something job vote history nation
 short something job `around` history nation notice three mention customer stand yeah describe another sound artist ask smile around baby phone rise attorney report possible `describe` street treat theory nice `attorney` **history** mouth matter ``describe``
+
+
+#### Tax spend ground eat media carry want teacher
+
+|rate|produce|
+|---|---|
+|green|one|
+|choice|far|
+|many|identify|
+|citizen|why|
+
+`young` teacher base official note section seem `**citizen**` fire `fire` sister case get chair quality **citizen** yourself hit mother young unit operation clearly group consider color citizen part skill nor tough sit **base** read site start star art mother professional deep color line head allow region `fire` foot improve detail road.
