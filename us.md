@@ -14,3 +14,7 @@ message large thus magazine animal man general star feel enter foot song meet ce
 
 ### Where remain or record case cultural approach meeting religious dog
 teacher evidence ever west move stuff attack fast argue south rate half before language far staff pretty TV style `south` **`among`** join sing adult all house piece result president left large `among` present movement worker security here discover **almost** arrive finally management certainly almost live help inside eight green series `south` arrive but kid lose human camera front ``south`` gun more among few **result** out.
+
+
+### Nor claim rule
+`**professional**` last test professional **professional** `last`
